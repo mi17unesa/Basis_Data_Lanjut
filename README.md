@@ -1,3 +1,1 @@
 # basdat_lanjut
-
-Terimakasih
